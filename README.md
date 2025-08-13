@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **sohamgujare19@gmail.com**
 
-- 📄 Know about my experiences [https://in.linkedin.com/in/soham-gujare-a85a15260](https://www.linkedin.com/in/soham-gujare-a85a15260/)
+- 📄 Know about my experiences [https://in.linkedin.com/in/soham-gujare](https://www.linkedin.com/in/soham-gujare/)
 
 - ⚡ Fun fact **Loves To Communicate With Strangers**
 
